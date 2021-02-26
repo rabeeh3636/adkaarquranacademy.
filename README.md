@@ -1,1 +1,1 @@
-# adkaarquranacademy.
+# adkaarquranacademy.in
